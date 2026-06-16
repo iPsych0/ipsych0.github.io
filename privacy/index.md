@@ -1,0 +1,3 @@
+# Fitlog Privacy Policy
+
+example
